@@ -1,5 +1,5 @@
 # Tjoekoer Bawah Pohon Barbershop
-Raih gaya modern yang sempurna di Tjoekoer Bawah Pohon Barbershop, "Barbershop Surabaya" dengan pelayanan barber premium yang memuaskan.
+Raih gaya modern yang sempurna di Tjoekoer Bawah Pohon Barbershop, Barbershop Surabaya dengan pelayanan barber premium yang memuaskan.
 
 # Website
 https://tjoekoerbawahpohon.com/
